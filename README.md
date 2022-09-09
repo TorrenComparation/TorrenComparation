@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Torren
+- 👀 I’m interested in creating new ideas and games
+- 🌱 I’m currently learning in college
+- 💞️ I’m looking to collaborate on finding myself in IT
+- 📫 You can sand me message in my email: maaxxx.a100@gmail.com
